@@ -1,1 +1,0 @@
-# vectul.github.io
